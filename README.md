@@ -1,4 +1,4 @@
-# Whiteout-Survival-UNLIMITED-FREE-Packs-Codes-Gems-DIAMOND-Gold-Keys-Stamina
+# Whiteout Survival UNLIMITED FREE Packs, Codes, Gems, DIAMONDS, Gold Keys, Stamina
 
 Free Gems / Diamonds, Packs, Gems, Codes, Gold Keys, Stamina from Whiteout Survival—no downloads or Whiteout Survival apk mods needed!
 
